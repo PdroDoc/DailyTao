@@ -1,5 +1,6 @@
 Verse 12
 
+
 Colors blind the eye.
 Sounds deafen the ear.
 Flavors numb the taste.

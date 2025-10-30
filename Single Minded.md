@@ -21,4 +21,4 @@ Your life will become simple and clear if
 you are unwavering in purpose, knowing that ‘now’ is the time to act. 
 Loyalty is a virtue born of this state of mind.”
     
-    ―Yamamoto Tsunetomo
+    ― Yamamoto Tsunetomo
